@@ -11,4 +11,4 @@ Explore our platforms for programming tutorials, learning resources, and course 
 [▶️ Subscribe to ITTacademy](https://www.youtube.com/@ITTacademy)
 
 ### Instagram
-[Follow ITTacademy on Instagram](https://www.instagram.com/itt_academy/)
+[Follow ITTacademy on Instagram](https://www.instagram.com/itt_academy)
